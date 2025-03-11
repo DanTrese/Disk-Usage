@@ -1,3 +1,3 @@
 # Disk Usage
 
-![image](https://github.com/user-attachments/assets/894e731f-8015-430c-a68b-b11541f88a18)
+![Untitled](https://github.com/user-attachments/assets/a0efda20-3d2e-4c65-95cb-01bcd6c7ecab)
